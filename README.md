@@ -1,1 +1,1 @@
-Quiz 1 dari SDA 
+Quiz 1 SDA 
